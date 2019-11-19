@@ -13,4 +13,4 @@
 When I'm not learning how to code, I enjoy doing Crossfit, _Ashtanga_ Yoga and training for my **6th** Half Marathon.
 I also enjoy reading, spending time with my cats and knitting.
 
-https://images.app.goo.gl/tfKaT4iLAeb1VfKG6
+![alt text]https://images.app.goo.gl/tfKaT4iLAeb1VfKG6
